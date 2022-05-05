@@ -1,0 +1,1 @@
+# photo-verdaine_odoo
